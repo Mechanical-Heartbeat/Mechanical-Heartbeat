@@ -28,19 +28,20 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 ---
 <p align="left">
 <details>
-<summary>♡ LINKS ♡</summary>
+<summary>𓇼 LINKS 𓇼</summary>
 <br>
-<a href="https://rentry.co/dance-of-abzendegi" target="_blank">rentry</a>  <a href="https://angelicdelusion.atabook.org/" target="_blank">atabook</a>  <a href="https://docs.google.com/document/d/1NUqF7yNQew0gaeoyo0qcVH-oEhFF9lrtcXmhU76wqno/edit?usp=sharing" target="_blank">read me!!</a>
+<a href="https://rentry.co/dance-of-abzendegi" target="_blank">rentry</a>  <a href="https://n1l0u.atabook.org/" target="_blank">atabook</a>  <a href="https://en.pronouns.page/@NocturneTides" target="_blank">Pronouns.cc</a>
 </details>
 
 <details>
-<summary>♡ FRIENDS ♡</summary>
+<summary>𓇼 FRIENDS ♡</summary>
 <br>
-<a href="https://github.com/GAMBLEGHOST" target="_blank">connie</a>  <a href="https://github.com/darlingness" target="_blank">fri</a>
-let me know if u want to be added / removed !! 😄
+<a href="https://github.com/Fuli-al" target="_blank">Chu!</a>  <a href="https://github.com/YunSillyYun" target="_blank">Yunnie</a>
+WILL CONTINUE ADDING LATER!
 </details>
 
 
 ```
 Github inspo from @suprcutie
+still in WIP. NOT finished yet.
 ```
