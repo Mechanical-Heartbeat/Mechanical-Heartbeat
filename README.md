@@ -5,7 +5,7 @@
   [![Untitled178-20260926182227.png](https://i.postimg.cc/Jzzkn1gV/Untitled178-20260926182227.png)](https://postimg.cc/JGSnYWMP)
 
 <p align="center">
-<img src="https://files.catbox.moe/zjhxm5.gif" alt="Gif"width="500" height="20">
+<img src="https://i.postimg.cc/mgMqBJmV/Tumblr-l-70873198719889.gif" alt="Gif"width="100" height="50">
 <p align="left">
 <a href="https://hits.sh/github.com/N1L0U/hits/"><img alt="Hits" src="https://hits.sh/github.com/N1L0U/hits.svg?label=%E2%89%A7%E2%89%A6&extraCount=8999&color=E8F0FA&labelColor=a7c3db"/></a>
 <p align="right">
