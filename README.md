@@ -34,9 +34,17 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 </details>
 
 <details>
-<summary>𓇼 FRIENDS ♡</summary>
+<summary>𓇼 FRIENDS + LOVEMAIL ♡</summary>
 <br>
-<a href="https://github.com/Fuli-al" target="_blank">Chu!</a>  <a href="https://github.com/YunSillyYun" target="_blank">Yunnie</a>
+2024 Trio!!: <a href="https://github.com/Fuli-al" target="_blank">Chu!</a> & <a href="https://github.com/YunSillyYun" target="_blank">Yunnie</a>
+
+♡
+
+Party: Kat , Lucy , Sumi , Chu , Angel , Janice, Junko , Nat , Kc , Moon <3
+
+
+♡
+
 WILL CONTINUE ADDING LATER!
 </details>
 
