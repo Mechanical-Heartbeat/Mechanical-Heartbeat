@@ -30,7 +30,7 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 <details>
 <summary>𓇼 LINKS 𓇼</summary>
 <br>
-<a href="https://rentry.co/dance-of-abzendegi" target="_blank">rentry</a>  <a href="https://n1l0u.atabook.org/" target="_blank">atabook</a>  <a href="https://en.pronouns.page/@NocturneTides" target="_blank">Pronouns.cc</a>
+<a href="https://rentry.co/dance-of-abzendegi" target="_blank">rentry</a>  <a href="https://n1l0u.atabook.org/" target="_blank">atabook</a>  <a href="https://en.pronouns.page/@NocturneTides" target="_blank">Pronouns.en</a>
 </details>
 
 <details>
