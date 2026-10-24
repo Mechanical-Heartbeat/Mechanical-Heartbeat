@@ -40,7 +40,7 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 
 ♡
 
-Party: Kat , Lucy , Sumi , Chu , Angel , Janice, Junko , Nat , Kc , Moon <3
+Party: Kat , Lucy , Sumi , Chu , Julie , Angel , Janice, Junko , Nat , Kc , Moon <3
 
 
 ♡
