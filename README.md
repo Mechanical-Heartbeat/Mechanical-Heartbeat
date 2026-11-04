@@ -40,12 +40,26 @@ xᴛʀᴀ xᴛʀᴀ ʀᴇᴀᴅ ᴀʟʟ ᴀʙᴏᴜᴛ ɪᴛ . . .
 
 ♡
 
-Party: Kat , Lucy , Sumi , Chu , Julie , Angel , Janice, Junko , Nat , Kc , Moon <3
+Chud quartet!! : <a href="https://github.com/dttore" target="_blank">Angel</a>, <a href="https://github.com/heartofhope" target="_blank">Julie</a>, Chu 
+
+♡
+
+Twin + BULLY : <a href="https://github.com/tszaelria" target="_blank">Zaelia</a>
 
 
 ♡
 
-WILL CONTINUE ADDING LATER!
+Family gc: Kat , <a href="https://github.com/green-appl3" target="_blank">Lucy</a> , Sumi , Chu , Julie , Angel , Janice, Junko , Nat , Kc , Moon <3
+
+
+♡
+
+LOVELY FRIENDS!! : <a href="https://github.com/Sc4r7V4mp1r3" target="_blank">Val!!</a> , <a href="https://github.com/1visse" target="_blank">Vivi!!!</a> , <a href="https://github.com/Suguru-getos" target="_blank">TOFU!!!!</a> , <a href="https://github.com/starrylumi" target="_blank">Lumi/willow!!</a> , <a href="https://github.com/ikupod" target="_blank">Shrimp...</a> , <a href="https://github.com/mavuikas" target="_blank">Rinnei</a> , <a href="https://github.com/veiledscholar" target="_blank">Hanyu!!</a>
+
+♡
+
+LMK IF YOU WANNA BE ADDED / REMOVED!! 
+
 </details>
 
 
